@@ -1,2 +1,2 @@
-# discord-shit
-this is gonna contain some of the shit ever. i guarantee
+# discord-stuff
+this is gonna contain some of the stuff ever. i guarantee
